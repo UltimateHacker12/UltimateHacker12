@@ -1,0 +1,8 @@
+-hi IM AJ the owner of this account and these hacks 
+-I do this for one and only one perpouse outsmart blooket
+-they wanted to play with us by banning these hacks then its game on bloooket
+-you will be outsmarted your security will be coropted and blooket will officially be my play ground
+-if theres one person you don't wanna play with its a hacker
+- Don't mess with my career !
+- I will hack blooket and I will take it.
+- this is a message to blooket never ever mess with me again !..
